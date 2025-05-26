@@ -10,6 +10,8 @@
 
 <p align="center">cr: mr-areyoustupid</p>
 
+<p align="center">flies are like fries they get eaten when you eat them</p>
+
 ###
 
 <div align="center">
