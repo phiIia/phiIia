@@ -10,8 +10,6 @@
 
 <p align="center">cr: sillysockii</p>
 
-<p align="center">flies are like fries they get eaten when you eat them</p>
-
 ###
 
 <div align="center">
