@@ -16,6 +16,7 @@
 
 <p align="center">ㅤ 8w9 854 sp/sx<br>𓏵ㅤ 𝑉L͟F͟𝐸³³¹²  𝐸𝑆𝐼ㅤㅤㅤㅤ×ㅤㅤㅤㅤ /𝑅/[C]o͟e͟𝐼 ㅤ𓏵</p>
 
+<p align="center">────────────────────────────────────</p>
 <p align="center">ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">
   <img height="24" src="https://i.ibb.co/DgKzyCpT/tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640.webp" alt="tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640)"  />
