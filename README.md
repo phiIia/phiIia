@@ -1,4 +1,4 @@
-<p align="center">────────────────────────────────────────────────</p>
+<p align="center">─────────────────────────────────────────────────────</p>
 <div align="center">
   <img height="40" src="https://i.ibb.co/ccZ9S8zZ/tumblr-33270078eea95e309f5d4d95b7e22929-0706716d-540.png"  />
 </div>
@@ -24,4 +24,4 @@
 <div align="center">
   <img height="40" src="https://i.ibb.co/XxsHSFgD/tumblr-99d71b768be6d5f3c3f45852f2dccf91-b5a9f2f0-540.png"  />
 </div>
-<p align="center">────────────────────────────────────────────────</p>
+<p align="center">─────────────────────────────────────────────────────</p>
