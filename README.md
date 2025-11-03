@@ -9,14 +9,14 @@
 
 ###
   
-<p align="center">ㅤㅤ𓏵   ㅤ        𝑣e͟t͟𝑙     /    𝑣e͟t͟l͟y͟𝑎         ㅤㅤ𓏵</p>
+<p align="center">ㅤㅤ𓏵   ㅤ      ,  𝑣e͟t͟𝑙     /    𝑣e͟t͟l͟y͟𝑎   ,      ㅤㅤ𓏵</p>
 
-<p align="center">6𝑡e͟e͟𝑛.  𝑈𝑇𝐶+3.  𝑟𝑢/𝑒𝑛𝑔 ㅤ × ㅤㅤ𝑚o͟s͟t͟l͟𝑦 𝑜ff͟t͟a͟𝑏. w2i</p>
+<p align="center">6𝑡e͟e͟𝑛,  𝑈𝑇𝐶+3,  𝑟𝑢/𝑒𝑛𝑔 ㅤ, × ,ㅤㅤ𝑚o͟s͟t͟l͟𝑦 𝑜ff͟t͟a͟𝑏, w2i</p>
 
 
-<p align="center">ㅤ 8w9 854 sp/sx<br>𓏵ㅤ 𝑉L͟F͟𝐸³³¹²  𝐸𝑆𝐼ㅤㅤㅤㅤ×ㅤㅤㅤㅤ /𝑅/[C]o͟e͟𝐼 ㅤ𓏵</p>
+<p align="center">ㅤ, 8w9 854 sp/sx  ,<br>𓏵ㅤ 𝑉L͟F͟𝐸³³¹²  𝐸𝑆𝐼ㅤㅤㅤ,ㅤ×ㅤ,ㅤㅤㅤ /𝑅/[C]o͟e͟𝐼 ㅤ𓏵</p>
 
-<p align="center">────────────────────────────────────</p>
+<p align="center">, ──────────────────────────────────── ,</p>
 <p align="center">ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">
   <img height="24" src="https://i.ibb.co/DgKzyCpT/tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640.webp" alt="tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640)"  />
