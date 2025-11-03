@@ -1,4 +1,4 @@
-<p align="center">─────────────────────────────────────────────────────</p>
+<p align="center">,─────────────────────────────────────────────────────,</p>
 <div align="center">
   <img height="34" src="https://i.ibb.co/DgKzyCpT/tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640.webp" alt="tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640)"  />
 <div align="center">
@@ -32,4 +32,4 @@
 </div>
 <div align="center">
   <img height="34" src="https://i.ibb.co/DgKzyCpT/tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640.webp" alt="tumblr-4d18d58c9b0daa7b3785f881ac35af2d-844e3d1b-640)"  />
-<p align="center">─────────────────────────────────────────────────────</p>
+<p align="center">,─────────────────────────────────────────────────────,</p>
