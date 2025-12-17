@@ -36,4 +36,4 @@ ${\textsf{\color{#fff2bb}но если что-то в вас меня оттол
 <p align="center">
 ${\textsf{\color{#fff2bb}комфорт обоих в общении правда важен} }$
   
-<p align="center">${\textsf{\color{#fff2bb},──────} }$ ───────────────────────────────────────────────────── ${\textsf{\color{#fff2bb}──────,} }$</p>
+<p align="center">${\textsf{\color{#fff2bb}'──────} }$ ───────────────────────────────────────────────────── ${\textsf{\color{#fff2bb}──────'} }$</p>
