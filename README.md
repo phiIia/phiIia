@@ -4,13 +4,13 @@
 
 
 <p align="center">
-${\textsf{\color{#785fca}sp8w9sx5w4sp4w5} }$
+${\textsf{\color{#f2cb70}sp8w9sx5w4sp4w5} }$
 
 <p align="center">
-${\textsf{\color{#785fca}VLFE³³¹² /R/[C]oeI} }$
+${\textsf{\color{#f2cb70}VLFE³³¹² /R/[C]oeI} }$
   
 <p align="center">
-${\textsf{\color{#785fca}гиперрефлексия побеждает } }$
+${\textsf{\color{#f2cb70}гиперрефлексия побеждает } }$
 
 
 <p align="center">'───────────────────────────🏵──────────────────────────'</p>
