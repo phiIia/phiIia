@@ -1,6 +1,6 @@
-<p align="center">,───────────────────────────☂──────────────────────────,</p>
+<p align="center">,───────────────────────────🏵──────────────────────────,</p>
 <p align="center">
-<img height="380" src="https://i.ibb.co/WvN1Vv5K/tumblr-5dca3d188a74b1ca81cc3914e90b2f22-de3864e3-100.png" alt="tumblr 5dca3d188a74b1ca81cc3914e90b2f22 de3864e3 100"  />
+<img height="380" src="https://i.ibb.co/fY3TR5qp/tumblr-2ee7c6fb11b317805ee18326c35eb33b-b9c9af78-100.png" alt="tumblr 2ee7c6fb11b317805ee18326c35eb33b b9c9af78 100"  />
 
 
 <p align="center">
@@ -13,4 +13,4 @@ ${\textsf{\color{#785fca}VLFE³³¹² /R/[C]oeI} }$
 ${\textsf{\color{#785fca}гиперрефлексия побеждает } }$
 
 
-<p align="center">'───────────────────────────☂──────────────────────────'</p>
+<p align="center">'───────────────────────────🏵──────────────────────────'</p>
