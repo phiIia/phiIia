@@ -1,5 +1,3 @@
-<div align="center">
-<img height="280" src="https://i.ibb.co/bjdyYymb/Untitled346-20251220195828.png"  />
 
 <div align="center">
   <img height="320" src="https://i.ibb.co/ddrHQXm/Untitled344-20251220192514.png"  />
