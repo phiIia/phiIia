@@ -3,8 +3,12 @@
 </div>
 </br>
 </br>
+
+<div align="center">
+‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵︵‿︵‿︵‿︵‿︵‿︵
 </br>
-</br>
+  </br>
+  </br>
 <p align="center">
 ${\textsf{\color{#8e8a65}𝘱𝘦𝘢𝘤𝘦𝘢𝘩𝘰𝘭𝘪𝘤,}}$ ${\textsf{\color{#c7c297}𝘢𝘭𝘰𝘯𝘦𝘢𝘩𝘰𝘭𝘪𝘤,}}$ ${\textsf{\color{#faf6d2}𝘥𝘪𝘴𝘵𝘢𝘯𝘵𝘢𝘩𝘰𝘭𝘪𝘤.}}$
 
